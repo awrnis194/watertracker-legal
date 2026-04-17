@@ -103,7 +103,7 @@ We may update this Privacy Policy from time to time — for example, to reflect 
 
 If you have any questions about this Privacy Policy or the App, you can reach us at:
 
-**Email:** aramis.jl04@gmail.com
+**Email:** garrotchever@gmail.com
 
 ---
 
